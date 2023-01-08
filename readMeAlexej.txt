@@ -1,0 +1,1 @@
+ Video and Tableau vizualizations are following today.
